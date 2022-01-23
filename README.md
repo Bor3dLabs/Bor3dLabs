@@ -5,7 +5,7 @@ which brings innovative opportunities to the metaverse community.
 We will incentivise our holders by giving them exclusive rights to decide 
 what will be advertised on our land through our DAO. (Decentralized Autonomous Organization)
 After establishing partnerships with agreed brands and other NFT communities,
-Metaboards will launch Metaverse City on two major platforms: Sandbox and Decentraland.
+Metaboards will launch our Metaboard City on two major platforms: Sandbox and Decentraland.
 
 
 
