@@ -7,14 +7,12 @@ what will be advertised on our land through our DAO. (Decentralized Autonomous O
 After establishing partnerships with agreed brands and other NFT communities,
 Metaboards will launch our Metaboard City on two major platforms: Sandbox and Decentraland.
 
-
-
 - 🌱 C0mpany Vision - Bor3d Labs wants to build teams to plan and execute one of a kind projects while bringing old and new communities together.
 -  As a team we will have in real life goals we would like to accomplish overtime that consist of providing low income neighborhoods across the USA with free solar energy panels and installation which we will do with a generous % of generated revenue from our projects.
--   Eventually we would like to provide this to service to 3rd world countires and less fortunate communites across the world.
--  Our overall vision is to launch succesful projects in the metaverse that will have a postive effect on less fortunate people in the real world.
-
+-   Eventually we would like to provide this to service to 3rd world countires and less fortunate communities across the world.
+-  Our overall vision is to launch succesful projects in the metaverse that will have a postive effect on the communities involed, and also communities across the world.
+-  Simply put.... Bor3d Labs only wants to Create, Give, and Expand. 
 - 
-- 💞️ I’m looking to collaborate on ...Bringing Bor3d Labs to life with a Development Team.
+- 💞️ I’m looking to collaborate on ...Bringing Bor3d Labs to life with the right people.
 - 📫 How to reach me ... @bor3dlabs@gmail.com
 
