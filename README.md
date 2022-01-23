@@ -11,7 +11,9 @@ Metaboards will launch our Metaboard City on two major platforms: Sandbox and De
 -  As a team we will have in real life goals we would like to accomplish overtime that consist of providing low income neighborhoods across the USA with free solar energy panels and installation which we will do with a generous % of generated revenue from our projects.
 -   Eventually we would like to provide this to service to 3rd world countires and less fortunate communities across the world.
 -  Our overall vision is to launch succesful projects in the metaverse that will have a postive effect on the communities involed, and also communities across the world.
--  Simply put.... Bor3d Labs only wants to Create, Give, and Expand. 
+-  Simply put.... Bor3d Labs only wants to Create..Give..and Expand. 
+
+- Leaving a footprint in the metaverse with our innovative ideas for communities BY communities.
 - 
 - 💞️ I’m looking to collaborate on ...Bringing Bor3d Labs to life with the right people.
 - 📫 How to reach me ... @bor3dlabs@gmail.com
